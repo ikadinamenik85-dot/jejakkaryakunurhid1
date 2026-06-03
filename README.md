@@ -1,1 +1,0 @@
-# jejakkaryakunurhid1
